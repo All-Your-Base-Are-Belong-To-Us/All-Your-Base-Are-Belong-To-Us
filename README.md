@@ -1,1 +1,6 @@
-![](https://photos.fife.usercontent.google.com/pw/AP1GczOsHpJSx6W7fHeFvA-EMb1eF3Kbux1vUqPEgsWLNrGQQ_tu4EinLTA=w1364-h768-s-no-gm?authuser=1)
+![New Drawing4 (3)](https://github.com/user-attachments/assets/8ad2f5bf-11a6-4fc3-9db4-6b9ae7797d27)
+this IS a wip page, bare with me</3
+
+*༶• Fern / 13 / baldis basicsIEAL#1 fan / taken / almondsexual,transgender,demiaroace 
+
+*. ⋆•Dni: Proshipers, comshipers, darkshipers ect / Zoophiles / Maps 
