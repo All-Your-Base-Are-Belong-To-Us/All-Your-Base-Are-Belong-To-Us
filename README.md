@@ -18,3 +18,8 @@
 ⋆•*.,xtra;see if you can figure this out, you got two pompoms on the end of this stick, a yellow pompom white pompom red pompom and a blue po-
 
 **You cannot get away with playing safe for this,You wanna get home? Put it all on the line, And put your whole brain in it**
+
+⋆༶*,Lm:Hello Acidic.S.S(im not typing that acronim bro.)/jupi ❤ and uhmmmmm men/j
+
+**Remember every trick in your domain for this, You gotta treat it like it is the main event.** 
+**You wanna get home? Put it all on the line Be dangerous**
