@@ -1,4 +1,4 @@
-![New Drawing4 (3)](https://github.com/user-attachments/assets/8ad2f5bf-11a6-4fc3-9db4-6b9ae7797d27)
+![New Drawing3 (1)](https://github.com/user-attachments/assets/4f4280fd-613a-4769-a61d-2d99d33262a3)
 **Bruises on my neck, I'm just a doll of flesh**
 
 *༶• Fern / 13 / baldis basicsIEAL#1 fan / taken / almondsexual,transgender,demiaroace
