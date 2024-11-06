@@ -1,6 +1,6 @@
 ![New Drawing3 (1)](https://github.com/user-attachments/assets/4f4280fd-613a-4769-a61d-2d99d33262a3)
 **You're being given a final option,Consider this your one last chance**
- 
+  
 *༶• Fern / 13 / baldis basicsIEAL#1 fan / taken / almondsexual,transgender,demiaroace
 
 **To make it back home and abandon caution,Wash it away like the blood your hands have known**
